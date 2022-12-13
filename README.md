@@ -1,1 +1,1 @@
-# lapakota2407.github.com
+# lapakota2407.github.io
